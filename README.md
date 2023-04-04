@@ -1,6 +1,3 @@
-# how-code-can-earn-passive-income
-
-
 ##### As a developer, there are several ways you can earn passive income. Here are some ideas:
 
 ##### Create and sell digital products: 
